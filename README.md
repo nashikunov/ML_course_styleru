@@ -17,7 +17,7 @@ https://www.youtube.com/watch?v=LzR0OPqmcCk&t=2239s
 https://www.youtube.com/watch?v=Jle_94zFKlY&t=1s
 
 
-Shikunov Nikolai
-Higher School of Economics
-Moscow
-April 2020
+Shikunov Nikolai \\
+Higher School of Economics \\
+Moscow \\
+April 2020 \\
